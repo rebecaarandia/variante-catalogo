@@ -1,4 +1,4 @@
-# Catálogo Vivo 🌿
+# Variante, soy gil
 
 Tu catálogo de productos o servicios, **disponible las 24 horas** con un solo link,
 descargable en **PDF**, con un botón **"Lo quiero"** que lleva directo a tu **WhatsApp**.
